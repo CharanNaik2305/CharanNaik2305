@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hi 👋, I'm Charan Naik
 i am engineering student
 
 
